@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lyly1987
-- 👀 I’m interested in ...lear and teach 
+- 👀 I’m interested in ...lear  
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...new project
 - 📫 How to reach me ...alianaely007@gmail.com
